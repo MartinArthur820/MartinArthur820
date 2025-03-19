@@ -9,6 +9,11 @@ i code and i build and i love enviroments i love enviroments&.
 ![image](https://github.com/user-attachments/assets/f8c6f472-9657-495f-8671-ea1e99b52304)
 ![image](https://github.com/user-attachments/assets/45c5d958-3198-4b9a-bbfe-c0f860eaac42)
 ![image](https://github.com/user-attachments/assets/1280494b-506c-42f8-ad1e-eb8dbc285fdd)
+![image](https://github.com/user-attachments/assets/b9acba6d-3797-4ef1-84cd-02403d02481a)
+![image](https://github.com/user-attachments/assets/31c77de3-f541-4a3d-95b7-43e52edd9e7f)
+![image](https://github.com/user-attachments/assets/e8e0f406-78d2-4202-98c3-4af5bdb72f6b)
+![image](https://github.com/user-attachments/assets/0b24c131-7073-4576-8413-a05b35429de6)
+
 
 
 
