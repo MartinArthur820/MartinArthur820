@@ -5,6 +5,12 @@ i code and i build and i love enviroments i love enviroments&.
 
 
 ![image](https://github.com/user-attachments/assets/633cb0b2-1268-4cbc-ae7d-c6edc8d4160c)
+![image](https://github.com/user-attachments/assets/cd29ab2b-86e8-44e3-961e-2c7929c8e6e0)
+![image](https://github.com/user-attachments/assets/f8c6f472-9657-495f-8671-ea1e99b52304)
+![image](https://github.com/user-attachments/assets/45c5d958-3198-4b9a-bbfe-c0f860eaac42)
+![image](https://github.com/user-attachments/assets/1280494b-506c-42f8-ad1e-eb8dbc285fdd)
+
+
 
 ![image](https://github.com/user-attachments/assets/8786611e-bb2e-4d4c-8aae-87e38d61f031)
 ![image](https://github.com/user-attachments/assets/5385386e-771f-46ce-804d-da1bbbe0c1c4)
